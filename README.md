@@ -1,1 +1,3 @@
-This is somanath birajdar 
+This is somanath birajdar
+currently i'm studying b.tech in vit pune 
+
