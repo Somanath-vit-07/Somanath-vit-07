@@ -1,5 +1,5 @@
 This is somanath birajdar
 <br>
-currently i'm studying b.tech in vit pune </br>
-i'm tech enthusiasm
+currently i'm pursuing b.tech from vit pune in information technology </br>
+
 
